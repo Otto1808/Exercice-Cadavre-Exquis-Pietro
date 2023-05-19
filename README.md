@@ -6,3 +6,6 @@ Malgré son apparence stoïque, Itachi est quelqu'un de profondément attentionn
 Fait pareil avec un personnage que tu préfère:
 
 je  suis un personnage diabolique 
+
+dans un arbre percher
+
