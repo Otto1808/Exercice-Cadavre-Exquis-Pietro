@@ -6,3 +6,5 @@ Malgré son apparence stoïque, Itachi est quelqu'un de profondément attentionn
 Fait pareil avec un personnage que tu préfère:
 
 Ken Kaneki is the main protagonist of Tokyo Ghoul and Tokyo Ghoul:re. Formerly a human with a normal life but everything was about to change. Kaneki is someone shy and reserved but cares a lot about his few friends. 
+
+Mato Kuroi is the main protagonist of _Black Rock Shooter_. Her caradesign is super nice. She's pretty calm. 
